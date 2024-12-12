@@ -1,4 +1,4 @@
-# Data Analyst
+# DATA ANALYTICS/FINANCIAL AUDIT
 
 ### Education
 
